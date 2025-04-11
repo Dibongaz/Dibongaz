@@ -8,4 +8,4 @@
 - 🎓 MSc Mathematics of Finance | BSc Electrical Engineering | IBM and Google Certified.
 - 🚀 Currently working on AI-driven investment models and financial forecasting projects.
 
-📫 Reach me on [LinkedIn](https://linkedin.com/in/bongani-mbambiso) or check out my [Portfolio Website](https://dibongaz.github.io/Bongani-Mbambiso/).
+📫 Reach me on [LinkedIn](https://www.linkedin.com/in/bongani-mbambiso-6738428/)) or check out my [Portfolio Website](https://dibongaz.github.io/Bongani-Mbambiso/).
